@@ -7,3 +7,7 @@ Want to feel more comfortable in the prayer service but feel inhibited because y
 ## About Michal Nachmany
 
 MICHAL NACHMANY is a graduate of the Hebrew University of Jerusalem. She has taught liturgical, biblical and modern Hebrew for more than 20 years at synagogues and other institutions throughout New York City.
+
+[View Resume](Michal Nachmany Resume Nov 2016.doc)
+
+[Podcast](https://itunes.apple.com/us/podcast/rega-shel-ivrit-moment-hebrew/id468419206?mt=2)
