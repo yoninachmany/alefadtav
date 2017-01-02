@@ -34,7 +34,7 @@ It is culture, warmth, and tea with fresh mint leaves.
 * Group Lessons
 * Hebrew Before/After Conversion
 * Translations
-* Bar/Bat Mitzvah Preparation (excep tropes)
+* Bar/Bat Mitzvah Preparation & Themes (except tropes)
 * Afterschool Hebrew Enrichment for Children
 
 ### Hebrew Marathon
