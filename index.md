@@ -32,6 +32,7 @@ It is culture, warmth, and tea with fresh mint leaves.
 * Private Lessons
 * Group Lessons
 * Hebrew Before/After Conversion
+* Translations
 
 ### Hebrew Marathon
 
