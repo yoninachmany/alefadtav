@@ -23,3 +23,5 @@ Want to feel more comfortable in the prayer service but feel inhibited because y
 MICHAL NACHMANY is a graduate of the Hebrew University of Jerusalem. She has taught liturgical, biblical and modern Hebrew for more than 20 years at synagogues and other institutions throughout New York City.
 
 [Download her Resume](Michal Nachmany Resume Nov 2016.doc)
+
+![Michal Nachmany BC back](Michal Nachmany BC back.jpg)
