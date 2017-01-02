@@ -20,7 +20,7 @@ It is culture, warmth, and tea with fresh mint leaves.
 
 [Listen to Michal's Podcast](https://itunes.apple.com/us/podcast/rega-shel-ivrit-moment-hebrew/id468419206?mt=2)
 
-![Michal Nachmany BC front](Michal Nachmany BC front.jpg)
+![Michal Nachmany BC back](Michal Nachmany BC back.jpg)
 
 ## List of Services
 
@@ -43,5 +43,4 @@ MICHAL NACHMANY is a graduate of the Hebrew University of Jerusalem. She has tau
 
 [Download her Resume](Michal Nachmany Resume Nov 2016.doc)
 
-![Michal Nachmany BC back](Michal Nachmany BC back.jpg)
-
+![Michal Nachmany BC front](Michal Nachmany BC front.jpg)
