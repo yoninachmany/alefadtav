@@ -9,6 +9,7 @@ Alef is the first letter of the alphabet, and tav is the last one.
 The first step of your journey is learning how to read the letters.
 Then we tailor a program according to your needs and learning style.
 
+Some of my students are 7 years old, and others are 80 years old.
 Some of my students study prayerbook and biblical Hebrew with me.
 Others study modern and spoken language.
 Some students take an accelerated "marathon" course.
@@ -24,7 +25,7 @@ It is culture, warmth, and tea with fresh mint leaves.
 
 ## List of Services
 
-* Prayerbook Hebrew
+* Prayerbook Hebrew (understanding the prayers)
 * Biblical Hebrew
 * Modern Hebrew
 * Spoken Hebrew
@@ -33,6 +34,8 @@ It is culture, warmth, and tea with fresh mint leaves.
 * Group Lessons
 * Hebrew Before/After Conversion
 * Translations
+* Bar/Bat Mitzvah Preparation (excep tropes)
+* Afterschool Hebrew Enrichment for Children
 
 ### Hebrew Marathon
 
