@@ -1,5 +1,7 @@
 # Alef ad Tav: Learn Hebrew quickly with Michal Nachmany
 
+![Michal Nachmany photo](Michal Nachmany Photo.jpg)
+
 ## What is Alef ad Tav?
 
 Alef ad Tav means A to Z in Hebrew.
@@ -16,26 +18,24 @@ Some prefer to study in a group, others one-on-one.
 Alef ad Tav is more than just letters and vowels.
 It is culture, warmth, and tea with fresh mint leaves.
 
-![Michal Nachmany photo](Michal Nachmany Photo.jpg)
-
-[Listen to her Podcast](https://itunes.apple.com/us/podcast/rega-shel-ivrit-moment-hebrew/id468419206?mt=2)
-
-![Michal Nachmany BC front](Michal Nachmany BC front.jpg)
+[Listen to Michal's Podcast](https://itunes.apple.com/us/podcast/rega-shel-ivrit-moment-hebrew/id468419206?mt=2)
 
 ## List of Services
 
-* Group Lessons
-* Private Lessons
-* Hebrew Marathon
-* Hebrew before Conversion
-* Hebrew after Conversion
+* Prayerbook Hebrew
 * Biblical Hebrew
 * Modern Hebrew
+* Spoken Hebrew
+* Hebrew Marathon
+* Private Lessons
+* Group Lessons
+* Hebrew Before/After Conversion
 
 ### Hebrew Marathon
 
 Want to feel more comfortable in the prayer service but feel inhibited because you can’t read Hebrew? Have you been meaning to learn the language but somehow never seemed to have the time? This unique seminar is perfect for you. Come for an intensive Hebrew marathon that will leave you wanting more. Learn the letters and vowels, and by the end of the day you will be reading Hebrew.
 
+![Michal Nachmany BC front](Michal Nachmany BC front.jpg)
 
 ![Michal Nachmany BC back](Michal Nachmany BC back.jpg)
 
